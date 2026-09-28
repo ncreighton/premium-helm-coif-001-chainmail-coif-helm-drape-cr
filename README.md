@@ -1,0 +1,2 @@
+# premium-helm-coif-001-chainmail-coif-helm-drape-cr
+Drowning in chainmail notes scattered across five different apps? The Chainmail Coif &amp; Helm Drape Craft Hub consolidates every stitch pattern, drape technique, and helm design into one beautifully organized Notion workspace.  Stop losing your weaving blueprints and armor references to digital chaos. This purpose-built Notion template gives craftspe
